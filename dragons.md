@@ -1,8 +1,6 @@
-# El Draco and the race to the stars
+ ![Image result for sky red sunset](../images/1544783769463_IMG_20181213_234804__85221.1545109932.jpg) 
 
-![sky red sunset](https://cdn11.bigcommerce.com/s-x49po/images/stencil/1280x1280/products/36451/49642/1544783769463_IMG_20181213_234804__85221.1545109932.jpg?c=2&imbypass=on) 
-
-## Chapter 1: The sky is burning
+# Chapter 1: The sky is burning
 
 El Draco felt the cool wind through her wings. Usually it would be a welcome breeze after a sultry hot day, but this time it stung much the same as ice does when building a really large snowman like the humans do. Watching the last rays, she soared higher above the red horizon and thought about what just happened in spite of her best intentions. "_Run_ away, and never come back", said the voice still ringing in her ears. It belonged to the wizened druid on the corner of Rue and Kings boulevard. 
 
@@ -13,3 +11,4 @@ The memory made El Draco smile fondly, but it didn't last long when she thought 
 The cauldron spewed its final breath in the form of a potent spell that makes her take on all the knowledge of the person standing next to her. She was not prepared for the staggering transformation in her mind in the next few moments. It was just a little too much. She already knew that he couldn't make another cauldron, and that he was right: she couldn't stay. With a peculiar knowing glance at each other, they parted ways. "_Goodbye old friend_", she thought.
 
 Now here she was floating in the sky, avoiding people for now and reveling at the crazy possibilities that could happen next.
+
